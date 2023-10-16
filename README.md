@@ -1,1 +1,0 @@
-# NAECORE_project_1
